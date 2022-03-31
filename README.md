@@ -13,7 +13,7 @@ You can click the Preview link to take a look at your changes.
 
 𝗖𝗵𝗲𝗰𝗸 𝗺𝘆 𝘄𝗼𝗿𝗸 𝗮𝘁 :point_right: [𝗵𝘁𝘁𝗽𝘀://𝗴𝗶𝘁𝗵𝘂𝗯.𝗰𝗼𝗺/𝗞𝗮𝗹𝘆𝗮𝗻𝗶𝗔𝘃𝗵𝗮𝗹𝗲](https://github.com/KalyaniAvhale)
 
-𝗩𝗶𝗲𝘄 𝗺𝘆 𝘄𝗼𝗿𝗸 𝗘𝘅𝗽𝗲𝗿𝗶𝗲𝗻𝗰𝗲 :point_right: [𝗥𝗲𝘀𝘂𝗺𝗲](https://github.com/KalyaniAvhale/KalyaniAvhale/blob/main/KALYANI_AVHALE.pdf)
+𝗩𝗶𝗲𝘄 𝗺𝘆 𝘄𝗼𝗿𝗸 𝗘𝘅𝗽𝗲𝗿𝗶𝗲𝗻𝗰𝗲 :point_right: [𝗥𝗲𝘀𝘂𝗺𝗲](https://github.com/KalyaniAvhale/KalyaniAvhale/blob/main/Kalyani_Avhale_2_5years.pdf)
 
 
 ## 𝗠𝘆 𝗧𝗲𝗰𝗸 𝗦𝘁𝗮𝗰𝗸
